@@ -1,2 +1,10 @@
-# tk_source
-Kiting the PNW Website source code
+# Kiting the PNW
+
+## Interested in beginner kiteboarding lessons at Jetty Island, Everett? 
+* [Click here for info](https://www.urbansurfkiteboarding.com/faqs)
+* [Click here to book](https://fareharbor.com/embeds/book/urbansurf/items/671415)
+
+
+### Follow on Instagram: 
+* [Torin In Space](https://www.instagram.com/torininspace)
+* [Urban Surf Kiteboarding](https://www.instagram.com/urbansurf_kiteboarding)
