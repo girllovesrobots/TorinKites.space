@@ -1,6 +1,6 @@
 # Kiting the PNW
 
-## Interested in beginner kiteboarding lessons at Jetty Island, Everett
+## Interested in beginner kiteboarding lessons at Jetty Island, Everett?
 * [Click here for info](https://www.urbansurfkiteboarding.com/faqs)
 * [Click here to book](https://fareharbor.com/embeds/book/urbansurf/items/671415)
 
