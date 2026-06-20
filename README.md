@@ -6,10 +6,9 @@
 
 ![Sunrise at Double Bluff](101424db.webp)
 
-
 ### Enjoyed your lesson? 
 * [Buy me wind? Leave a tip? Ransom my lost board?](https://venmo.com/u/torininspace)
-![Venmo code](MyVenmoQRCode.webp | width=300)
+![Venmo code](MyVenmoQRCode.webp)
 
 ### Follow on Instagram: 
 * [Torin In Space](https://www.instagram.com/torininspace)
