@@ -4,7 +4,12 @@
 * [Click here for info](https://www.urbansurfkiteboarding.com/faqs)
 * [Click here to book](https://fareharbor.com/embeds/book/urbansurf/items/671415)
 
-![Sunrise 2 at Double Bluff](101424db.webp)
+![Sunrise at Double Bluff](101424db.webp)
+
+
+### Enjoyed your lesson? 
+* [Buy me wind? Leave a tip? Ransom my lost board?](https://venmo.com/u/torininspace)
+![Venmo code](MyVenmoQRCode.webp)
 
 ### Follow on Instagram: 
 * [Torin In Space](https://www.instagram.com/torininspace)
