@@ -9,7 +9,7 @@
 
 ### Enjoyed your lesson? 
 * [Buy me wind? Leave a tip? Ransom my lost board?](https://venmo.com/u/torininspace)
-![Venmo code](MyVenmoQRCode.webp)
+![Venmo code](MyVenmoQRCode.webp | width=300)
 
 ### Follow on Instagram: 
 * [Torin In Space](https://www.instagram.com/torininspace)
